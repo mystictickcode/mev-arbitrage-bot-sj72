@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with vip Sniper for MEV arbitrage bot | stop-loss & buy-pressure-analysis, the #1 MEV arbitrage bot. Includes stop-loss and buy-pressure-analysis for a faster
 
 
 
